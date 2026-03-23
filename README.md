@@ -4,3 +4,4 @@ https://www.youtube.com/@TheoriesofEverything
 
 # Video:
 - [Robert Sapolsky And Daniel Dennett Free Will Debate](https://youtu.be/GsaXhVRvuZ4)
+- [Why Write?](https://youtu.be/rTeoWbm2Jrc)
